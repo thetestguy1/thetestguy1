@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @thetestguy1
+- 👀 I’m interested in random stuff
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nobody
